@@ -9,7 +9,8 @@ DNI:
 VIVZIEPOP STANS // HELLUVABOSS/HAZBIN HOTEL FANS // PROSHIPPERS // DARKSHIPPERS // 18 AND OVER // 10- AND UNDER // UHHH IF I DONT LIKE YOU ILL PROBABLY JUST BLOCK/HIDE YOU. refrain from talking about discourse, SORRY!!
 
 
-INTERACT WITH CAUTION / IWC:
+
+INTERACT WITH HEAVY CAUTION / IWC:
 
 ↓
 
@@ -17,4 +18,4 @@ INTERACT WITH CAUTION / IWC:
 
 EDDSWORLD FANS // INVADER ZIM FANS // FORSAKEN FANS // ARG FANS // DOD FANS // ANY ROBLOX BASED FANDOM INTERACT WITH HEAVY CAUTION. 
 
-(( please refrain from talking about invader zim and eddsworld to me. it is a sensitive topic and i dont really want to speak about it UNLESS YOU ARE CLOSE. )) 
+(( please refrain from talking about invader zim and eddsworld to me. it is a sensitive topic. )) 
